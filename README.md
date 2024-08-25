@@ -9,4 +9,4 @@ If you'd like to reach me, you can e-mail me to <diegoperezquinteroo@gmail.com>
 
 Fun fact: I am currently studying computer science at the Faculty of Sciences, Autonomous University of Mexico
 
-- Tshüss!
+- Tschüss!
